@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=900&size=74&pause=240&color=E60026&center=true&vCenter=true&width=1580&lines=THE+SEVEN+DEADLY+SINS+ORIGIN+TRAINER+2026;FLY+•+NOCLIP+•+DOMINATE;CONQUER+BRITANNIA" alt="The Seven Deadly Sins Origin Trainer 2026" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/ac179c91-16ca-4f1b-9fb1-c733fd55ee43" />
 </div>
 
 <br/>
